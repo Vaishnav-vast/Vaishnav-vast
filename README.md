@@ -42,4 +42,4 @@ When the screen goes dark, you can find me:
 ### 📫 Let's Connect!
 
 *   **LinkedIn:** [vaishnav-rajesh-menon-aaa737313](https://www.linkedin.com/in/vaishnav-rajesh-menon-aaa737313/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BvehIqiWcQ1WsQImSCSaODA%3D%3D)
-*   **Portfolio:** [your-portfolio-link](https://your-website.com)
+
